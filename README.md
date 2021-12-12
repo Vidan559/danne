@@ -1,0 +1,2 @@
+# danne
+Luôn ngu
